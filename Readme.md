@@ -1,3 +1,4 @@
+no thing is secure for you ,should chose one or two thing with you
 ## 3 💪Power in 🌎
 ### ↗Compound 
 ### 🗃Diversify
