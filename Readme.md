@@ -4,3 +4,6 @@ no thing is secure for you ,should chose one or two thing with you
 ### 🗃Diversify
 ### 😋Supply & Demand
 - 💊Drug make people feeling happy one day, cause them bad all time for long term (atomic habits)
+## Freedom
+### ⚓No-word
+- have power to say no every situation or everything.
